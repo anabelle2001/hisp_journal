@@ -8,19 +8,7 @@ For "To Roosevelt", follow these questions. Your homework is a brief reflection 
 - What adjectives and verbs does he use for each?
 - What is the poem's tone?
 # Reflection
+
 I did not expect  *To Rosevelt* and *Saluting the Eagle* to have such radically different stances on America. While *Roosevelt* is a strong condemnation of the colonialism exceptionalism and interventionalism, *Saluting the Eagle* feels more like a love letter. 
 
-This disconnect really gets at the heart of my own mental model of the US. Growing up, I was told that we were a nation of immigrants that prided itself on values like free speech and democracy. But learning actual american history. But when i got older, that bubble popped, and i came to understand that we were a country of colonialism, war profiteering, corporate lobbying, and more.
-
-What's fascinating to me is that 
-
-sonance For me, the tension between these two texts highlights a completley different tone; it's much more focused on 
- 
-  military machine.
- 
-  but then, in saluting the eagle, he pivots and talks about the
- 
-  idea of america as a, like, utopian immigrant place.
-  i think, for me.
-  i noticed that tension in my own beliefs about america.
-  and so it's interesting to see someone from another culture, really identify those beliefs have shifting narrative about them.
+This disconnect really gets at the heart of my own mental model of the US. Growing up, I was told that we were a nation of immigrants that prided itself on values like free speech and democracy. But learning actual american history. But when i got older, that bubble popped, and i came to understand that we were a country of colonialism, war profiteering, corporate lobbying, and more. It feels strange knowing that *Saluting the Eagle* came after *To Rosevelt*. I don't really know what to make of the fact that Dario started as a critic of the USA, only to later fall in love with it.
